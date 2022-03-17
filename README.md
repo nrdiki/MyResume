@@ -1,2 +1,0 @@
-# MyResume
-Curiculum Vitae Diki
